@@ -1,2 +1,0 @@
-hayeong
-week1
